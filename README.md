@@ -1,5 +1,6 @@
 # practice-webdesign-davis
 for practice at NTS.
+
 I am a senior at MHS, and I am a cheer captain. We are going to Dallas, Texas for NCA nationals on January 19 through the 22. I am really excited and I hope we do well.
 
 When I graduate, I plan to attend NCMC Savannah to obtain my RN, and afterwards get a BSN online. I currently have my CNA, which I got through the health science program here at the tech school. I enjoy being able to help others, so I'm excited to move forward with this career.
